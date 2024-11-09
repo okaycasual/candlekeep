@@ -1,0 +1,3 @@
+Many have speculated as to the origins of kobold and some say are all distantly related to dragons. However, a particular kind of kobold, known as a dragonwrought kobold, is thought to be the closest to a draconic lineage.
+
+With scales that are tinted in a hue that align with the draconic colour of their respective ancestors, they are the most draconic in appearance, but are extremely rare. Some but not all of these kobolds have a functional set of reptilian wings, which would appear and increase in functionality as the dragonwrought kobold aged.

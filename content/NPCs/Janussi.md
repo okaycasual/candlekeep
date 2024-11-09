@@ -1,0 +1,1 @@
+The current Keeper of Tomes of Candlekeep.

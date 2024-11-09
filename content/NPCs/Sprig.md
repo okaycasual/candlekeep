@@ -1,0 +1,1 @@
+Avowed Guide of [[Candlekeep]], lover of biscuits.

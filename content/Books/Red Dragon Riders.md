@@ -1,0 +1,4 @@
+In the uprising against the [[Illithid]], [[Gith]] sought allies. Their leader [[Vlaakith]] appealed to [[Tiamat]], the goddess of evil dragonkind. Only Tiamat now knows what passed between them, but Vlaakith returned with the Dragon Queen’s red dragon consort [[Ephelomon]], who proclaimed that his kind would forever act as allies to the Githyanki. Not all red dragons honour the alliance kindled so long ago, but most at least don’t consider the Githyanki their enemies...
+
+
+...Red dragons typically serve the Githyanki during their younger years. Once a dragon reaches adulthood, it is dismissed and replaced with a younger dragon, taking with it the loot it has accumulated on raids.

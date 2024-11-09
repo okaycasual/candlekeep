@@ -1,0 +1,1 @@
+Chauntea (pronounced: /tʃɔːnˈtiɑː/ chawn-TEE-ah) was the Faerunian goddess of life and bounty, who viewed herself as the embodiment of all things agrarian. The Earthmother was seen as the tamer parallel of [[Silvanus]], the Forest Father of druidry and wilderness, as she was the deity of agriculture and plant cultivation.

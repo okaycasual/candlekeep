@@ -1,0 +1,1 @@
+Selûne (pronounced: /sɛˈluːnɛ/ seh-LOON-eh or: /sɛˈluːneɪ/ seh-LOON-ay), also known as Our Lady of Silver, the Moonmaiden, and the Night White Lady, was the goddess of the moon in the Faerûnian pantheon

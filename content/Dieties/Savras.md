@@ -1,0 +1,1 @@
+Savras (pronounced: /ˈsɑːvrɑːs/ SAV-ras) was the deity of wizards, divination, fate, and truth in the Faerûnian pantheon.

@@ -1,0 +1,1 @@
+Book was used to summon [[Dust Mephit]] and [[Air Elemental]] in the [[Court of Air]].

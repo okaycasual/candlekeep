@@ -1,0 +1,1 @@
+Dust Mephits are small, winged and flying minor elemental creatures that can greatly reduce a target's visual acuity. When the mephit dies, it explodes in a burst of dust.

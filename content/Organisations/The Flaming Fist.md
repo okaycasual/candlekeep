@@ -1,0 +1,1 @@
+The Flaming Fist, or Flaming Fists, are a mercenary company based in the city of [[Baldur's Gate]], where its members served as city guards.

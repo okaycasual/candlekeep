@@ -1,0 +1,1 @@
+Oghma (pronounced: /ˈɒggmɑː/ OGG-mah) was the neutral or unaligned greater god of inspiration, invention, and knowledge and the patron of bards in the Faerûnian pantheon.

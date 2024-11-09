@@ -1,0 +1,1 @@
+Is believed to be a ooze of some kind.

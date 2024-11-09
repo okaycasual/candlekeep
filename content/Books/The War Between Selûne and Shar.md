@@ -1,0 +1,1 @@
+A religious book that detailed the relationship between and origins of [[Selûne]] and [[Shar]], the original two goddess-sisters.

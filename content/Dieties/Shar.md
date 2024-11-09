@@ -1,0 +1,1 @@
+Shar (pronounced: /ˈʃɑːr/ SHAHR), also known as Mistress of the Night and the Lady of Loss, was the goddess of darkness and the night in the Faerûnian pantheon and the malevolent twin sister and counterpart to the goddess of the moon, [[Selûne]].

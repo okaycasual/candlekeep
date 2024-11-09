@@ -1,0 +1,1 @@
+A shadow is a humanoid creature made from darkness.

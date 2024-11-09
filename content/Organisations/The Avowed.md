@@ -1,0 +1,1 @@
+The Avowed are an order of scholar monks dedicated to the preservation of knowledge and defence of Candlekeep. The majority of the monks are simple commoners, but their ranks also include a select few clerics, paladins, and wizards devoted to the pursuit of truth and knowledge.

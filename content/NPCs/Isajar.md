@@ -1,0 +1,1 @@
+A Great Reader and briefly Keeper of Tomes of Candlekeep in the past. Isajar had a reputation for disliking the usage of the hard 'c' in his writing, instead favouring the letter 'k'.

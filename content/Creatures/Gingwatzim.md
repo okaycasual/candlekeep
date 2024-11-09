@@ -1,0 +1,1 @@
+A gingwatzim is a peculiar form of life created by a spell or a ritual. A gingwatzims true form is that of a luminous (but not too bright) sphere of ectoplasm roughly 3 feet in diameter. A gingwatzim follows its creator's commands without question, using telepathy to communicate.

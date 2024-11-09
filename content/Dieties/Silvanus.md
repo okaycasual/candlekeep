@@ -1,0 +1,1 @@
+Silvanus (pronounced: /sɪlˈvɑːnʌs/ sihl-VANN-us) was the Celtic and Faerunian power of wild nature,standing in contrast to the more ordered, agrarian nature represented by the goddess [[Chauntea]].

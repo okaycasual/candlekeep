@@ -1,0 +1,1 @@
+This quill owned by [[Tragorican]] is capable of writing any words uttered by the target of the spell. All that is needed is blank paper and the quill to be held over the book when the spell is cast.

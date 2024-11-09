@@ -1,0 +1,1 @@
+Deneir (pronounced: /dɛˈnɪər/ deh-NEER) was the neutral good lesser deity of art, cartography, glyphs, images, knowledge, literature, and scholars.

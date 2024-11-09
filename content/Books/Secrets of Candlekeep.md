@@ -1,0 +1,1 @@
+A magic book that appears blank believed to be written by [[Isajar]].
