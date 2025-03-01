@@ -1,0 +1,4 @@
+- [ ] Add images to all creatures
+- [ ] Add images to all magic items
+- [ ] Add descriptions to all magic items
+- [ ] Add descriptions to all places

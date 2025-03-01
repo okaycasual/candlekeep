@@ -1,1 +1,0 @@
-Bahamut (pronounced: /bɑːˈhɑːmʌt/ ba-HA-mut or: /ˈbɑːhɑːmʌt/ BA-ha-mut) was the dragon god of justice. His natural form was that of a platinum dragon, said by many to be the only one of his kind. He was also the eternal rival of his sister [[Tiamat]], queen of the chromatic dragons.
